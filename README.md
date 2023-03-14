@@ -1,5 +1,5 @@
 # Iaroslav Gritsenko
-![](https://sun9-8.userapi.com/impf/c631219/v631219631/6720/lE9RBX_sLHs.jpg?size=2160x1440&quality=96&sign=5ae5a56752ae8b7a76969d1613a30229&type=album)
+<!-- ![](https://sun9-8.userapi.com/impf/c631219/v631219631/6720/lE9RBX_sLHs.jpg?size=2160x1440&quality=96&sign=5ae5a56752ae8b7a76969d1613a30229&type=album) -->
 
 # Contact
 #### E-mail: iar.gritsenko@gmail.com
